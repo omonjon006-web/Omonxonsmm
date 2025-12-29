@@ -1,0 +1,2 @@
+# Omonxonsmm
+Hmm loyihalarim
